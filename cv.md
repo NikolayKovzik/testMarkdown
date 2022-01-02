@@ -9,7 +9,7 @@
 * **Telegram -** @theroofisonfire
 * **E-mail -** nikolay.kovzik@mail.ru
 
-*******
+**********
 
 ### ABOUT MYSELF
 
