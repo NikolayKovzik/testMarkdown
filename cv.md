@@ -17,7 +17,7 @@ My name is Nikolay. I am 25 years  old. I study by correspondence at the Belarus
 
 I don't have any working experience in the IT sphere, but i'm hungry for knowledge and new experience and have a massive desire to fill in this gap.
 
-*******
+***********
 
 ### SKILLS
 
